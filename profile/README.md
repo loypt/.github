@@ -2,7 +2,7 @@
 
 
 
-🙋‍♀️ My Personal Knowledge Trees
+🙋‍ My Personal Knowledge Trees
 
 <!--
 
